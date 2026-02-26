@@ -152,7 +152,7 @@
 
 🔮 Let's connect on [LinkedIn](https://www.linkedin.com/in/chandru-kannan-b5919a313/).
 
-🪄 Do Check [Quantivon  | Portfolio](https://www.chandrukannan.me/).
+🪄 Do Check [Quantivon  | Portfolio](https://chandrukannan.me/).
 
 Let's spark innovation together! 🧙‍♂️✨
 
